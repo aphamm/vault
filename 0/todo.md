@@ -1,0 +1,4 @@
+- thesis nootropics
+- athletic greens
+- job search
+- amulet and ear ring
